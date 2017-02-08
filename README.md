@@ -1,6 +1,7 @@
-Scott C. Murray  
+**Scott C. Murray**  
 **212 Hunters Lane**  
-**Anderson SC 29625**![](https://media.licdn.com/mpr/mpr/shrinknp_400_400/p/1/005/09e/27c/1f36126.jpg)
+**Anderson SC 29625**  
+![](https://media.licdn.com/mpr/mpr/shrinknp_400_400/p/1/005/09e/27c/1f36126.jpg) 
 
 **Anderson University (2008)**  
 **Bachelor of Arts: _History_**                              
@@ -27,7 +28,8 @@ Greenville, SC
 
 _Other Roles: US Rebate Analyst Trainer, Cross-Functional Liaison, US & Mexico Excel Trainer_
 
-**Business Analyst for Accounts Receivable**  
+**Business Analyst for Accounts Receivable** 
+
 * Primarily responsible for the Past Due totals and claims of one of Michelin’s largest dealers
 * Took the Past Due total from 4.5 million to 1.5 million in under two years (against a goal of 2.4 million)
 * Organized and facilitated a “Past Dues Summit” where I brought together all of the internal stakeholders and discussed the major issues we faced and facilitated the creation of acceptable solutions and changes
@@ -38,6 +40,7 @@ _Other Roles: US Rebate Analyst Trainer, Cross-Functional Liaison, US & Mexico E
 _Other Roles: US & Mexico AR Analyst Trainer, Cross-Functional Liaison, Customer IT department liaison, US & Mexico Excel Trainer_
 
 **Order Delivery Specialist**
+
 * Primarily responsible for the correction of Inventory counts and billing issues caused by Shipping Discrepancies (overages, shortages, mislabeled tires, etc.)
 * This role often took intensive problem-solving skills to find the best solution for the dealer in the given circumstances 
 * Responsible for providing an easy to follow audit trail for both internal and external auditors
@@ -51,7 +54,8 @@ Anderson, SC
 9/2003 - 1/2010 &  
 9/2015 - present**
 
-**Supervisor**  
+**Supervisor**
+
 * Responsible for leading a department of 8-23 Employees; hiring, training, performance management, disciplinary actions and all other aspects of the employee experience
 * Responsible for results: sales targets, strategic planning, and merchandising
 * Chairman of the "viewpoint" committee for employee engagement for two years
