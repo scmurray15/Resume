@@ -7,6 +7,7 @@
 **Bachelor of Arts: _History_**                              
 **Anderson, SC**
 
+
 **Michelin                
 Greenville, SC  
 08/2015 - present**
