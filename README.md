@@ -10,7 +10,7 @@
 
 **Michelin                
 Greenville, SC  
-08/2015 - present**
+01/2010 - present**
 
 **Business Analyst for Deferred Rebates**
 
