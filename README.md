@@ -64,3 +64,4 @@ Anderson, SC
 * Lead the team with active sales techniques and drove accessory and warranty sales
 * Consistently lead the team in customer survey results in volume and satisfaction ratings 
 
+Find me on [LinkedIn](https://www.linkedin.com/in/scott-murray-a0a50b25)  
