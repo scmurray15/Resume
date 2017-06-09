@@ -6,9 +6,15 @@
 **Anderson, SC**
 
 
+**AdHoc LLC                
+McLean, VA  
+04/2017 - present**
+
+**Business Analyst for Deferred Rebates**
+
 **Michelin                
 Greenville, SC  
-01/2010 - present**
+01/2010 - 04/2017**
 
 **Business Analyst for Deferred Rebates**
 
