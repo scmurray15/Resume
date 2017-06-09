@@ -1,6 +1,4 @@
-**Scott C. Murray**  
-**212 Hunters Lane**  
-**Anderson SC 29625**  
+**Scott C. Murray**    
 ![](https://media.licdn.com/mpr/mpr/shrinknp_400_400/p/1/005/09e/27c/1f36126.jpg) 
 
 **Anderson University (2008)**  
